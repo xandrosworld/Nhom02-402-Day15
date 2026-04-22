@@ -13,6 +13,11 @@
 ## Tài liệu
 
 - [Slide thuyết trình](https://docs.google.com/presentation/d/1Lb04rcYUIZtlL6C-XNPdLSggEl3UNrasmGc6mPks5Es/edit)
+- [Kết luận track Phase 2 của nhóm](https://drive.google.com/file/d/1D20LMdF8S_8l9WqqlqZQo9TC9wcLVp9O/view?usp=sharing)
+
+## Chấm điểm các nhóm
+
+- [Phiếu chấm cho các đội khác trong zone](https://drive.google.com/drive/folders/1-wkNIVwhQADsVLlQcIgx9ub8XyuHAkTA?usp=sharing)
 
 ## Link worksheet
 
